@@ -1,3 +1,4 @@
+Modified from: https://getpocket.com/a/read/1072394491
 #### Ingredients:
 - 5 cups shredded green cabbage
 - 1 red bell pepper, thinly sliced
