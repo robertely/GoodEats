@@ -1,0 +1,11 @@
+#### Ingredients:
+- 5 cups shredded green cabbage
+- 1 red bell pepper, thinly sliced
+- 3/4 cup chopped cilantro
+- 2 jalapeño peppers, seeded, julienned
+- 2 tablespoons olive oil
+- 3 tablespoons freshly squeezed lime juice
+- 3/4 teaspoons ground cumin
+- Cider vinagar ?
+- Kosher salt
+- Freshly ground black pepper
